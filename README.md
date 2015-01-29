@@ -5,7 +5,7 @@
 
 **My nickname** is _Mai_
 
-**My birth day** _is 27 Decemberr 1993_
+**My birth day** is _27 Decemberr 1993_
 
 _In my favorite time i usually read novel book_
 
