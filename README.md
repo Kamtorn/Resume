@@ -7,4 +7,4 @@ _In my favorite time i usually read novel book_
 
 **Contact me**
 
-*Facebook* = <https://www.facebook.com/princelate>
+**Facebook** = <https://www.facebook.com/princelate>
